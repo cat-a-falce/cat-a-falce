@@ -1,4 +1,3 @@
-
 ![html 4](https://github.com/user-attachments/assets/cca92f35-fa81-4b03-9677-99af339521aa)
 ![css-3 3](https://github.com/user-attachments/assets/d110d5b8-aec9-42f1-9118-1e21d02930f5)
 ![java-script 2](https://github.com/user-attachments/assets/40e2ec26-4e0b-46fe-9bb7-608384e22c7e)
@@ -6,18 +5,6 @@
 ![python 3](https://github.com/user-attachments/assets/6651de78-9206-4bfc-b359-8de04370124f)
 ![IMG_5367](https://github.com/user-attachments/assets/74691012-ce20-4895-ba7e-a75ac4c2009a)
 ![IMG_5366](https://github.com/user-attachments/assets/5335d3bc-3c48-4af9-ba8e-946f9b1571e4)
-
-
-
-
-
-
-
-
-
-
-
-
 
 ![IMG_5336](https://github.com/user-attachments/assets/07bb9315-4643-4803-85ab-17c3d9207d5a)
 
@@ -37,11 +24,14 @@
 
 ---
 ### warm welcomes ᥫ᭡
+
 ❍ ambitious university student 
 
 ❍ like weapons, history and politics, dramaturgy and the art of narrative, fashion and art
 
 ❍ 20 y.o, moscow, appreciate my family, partner, friends, and my cat
+
+---
 
 <b>*for more, visit my page:*</b>
 
