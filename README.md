@@ -18,7 +18,7 @@
 
 ---
 ### warm welcomes ᥫ᭡
-❍ambitious university student 
+❍ ambitious university student 
 
 ❍ like weapons, history and politics, dramaturgy and the art of narrative, fashion and art
 
