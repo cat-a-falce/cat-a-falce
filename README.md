@@ -27,7 +27,7 @@
 <b>*for more, visit my page:*</b>
 
 
-[![IMG_5337](https://github.com/user-attachments/assets/b8aa7d9c-9108-445a-b9c7-8e71ab93d9c9)](https://linktr.ee/nitroglycerina)
+[![IMG_5340](https://github.com/user-attachments/assets/9a7e59de-6bf0-4960-8c12-6ab6b733c931)](https://linktr.ee/nitroglycerina)
 
 
 
