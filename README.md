@@ -46,7 +46,7 @@
 <b>*for more, visit my page:*</b>
 
 
-[![IMG_5376](https://github.com/user-attachments/assets/fec2cae9-1b01-4cd9-9956-5b3de47b3bef)](https://linktr.ee/nitroglycerina)
+[![IMG_5376_VSCO](github.com/user-attachments/assets/1d635bd9-dcc0-41c9-ac4f-2da7de458a7a)](https://linktr.ee/nitroglycerina)
 
 
 
