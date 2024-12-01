@@ -1,29 +1,30 @@
-![IMG_5312](https://github.com/user-attachments/assets/260005cb-c797-4bde-b931-1ad12a6a77f3)![IMG_5314](https://github.com/user-attachments/assets/fea4fb29-020b-485e-904c-a32ac8216029) ![IMG_5313](https://github.com/user-attachments/assets/869dab2a-c9d8-4ddf-9383-9bae8ae3439f) ![IMG_5315](https://github.com/user-attachments/assets/187a5f4b-c0b7-42f9-b73f-f0572828355b) ![IMG_5316](https://github.com/user-attachments/assets/638eba97-6208-483e-9e22-26646a73a83c)
+![IMG_5312](https://github.com/user-attachments/assets/260005cb-c797-4bde-b931-1ad12a6a77f3)![IMG_5314](https://github.com/user-attachments/assets/fea4fb29-020b-485e-904c-a32ac8216029) ![IMG_5313](https://github.com/user-attachments/assets/869dab2a-c9d8-4ddf-9383-9bae8ae3439f) ![IMG_5315](https://github.com/user-attachments/assets/187a5f4b-c0b7-42f9-b73f-f0572828355b) ![IMG_5316](https://github.com/user-attachments/assets/638eba97-6208-483e-9e22-26646a73a83c) ![IMG_5317](https://github.com/user-attachments/assets/c5f69988-e000-41b3-a6c0-94becf220ba5) ![IMG_5318](https://github.com/user-attachments/assets/6534ee25-39e0-41ae-80e9-3ea74345db9b)
 
-![IMG_5317](https://github.com/user-attachments/assets/c5f69988-e000-41b3-a6c0-94becf220ba5) ![IMG_5318](https://github.com/user-attachments/assets/6534ee25-39e0-41ae-80e9-3ea74345db9b)
-
+![IMG_5335](https://github.com/user-attachments/assets/42af777e-cbd4-44a3-b05b-2ad351e47e1d)
 
 
 ![IMG_5308](https://github.com/user-attachments/assets/0d591440-2aae-4ff1-b5c4-339f2892d370)
 
-# my motto
+<b> my motto </b>
 *... to know how much i can achieve with just passion... not to mention effort.*
 
-## my goal
+<b> my goal </b>
 *... to realize all my plans and ideas on a full scale.*
 
-## my inspiration
+<b> my inspiration </b>
 *... curiosity and a desire for new things and spheres.*
 
-## my current focus
+<b> my current focus </b>
 *... developing discipline (have a lack of it) and fighting against boundaries in my mind.*
 
 ---
-![IMG_5308](https://github.com/user-attachments/assets/424c03e2-9b6e-4b03-b7f9-b9f9473b9c4f)
-
 ### warm welcomes ᥫ᭡
-university student learning linguistics • like weapons, dramaturgy, and the art of narrative, fashion and design 
-• 20 y.o, moscow, appreciate my family, partner, friends, and my cat
+ambitious university student ❍ like weapons, history and politics, dramaturgy and the art of narrative, fashion and art
+❍ 20 y.o, moscow, appreciate my family, partner, friends, and my cat
+
+<b>*for more, visit my page:*</b>
+[![IMG_5334](https://github.com/user-attachments/assets/fa8a581a-6582-4f6d-9b08-641c6e4ca41d)](https://linktr.ee/nitroglycerina)
+
 
 
 <!---
