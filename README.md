@@ -19,7 +19,9 @@
 ---
 ### warm welcomes ᥫ᭡
 ❍ambitious university student 
+
 ❍ like weapons, history and politics, dramaturgy and the art of narrative, fashion and art
+
 ❍ 20 y.o, moscow, appreciate my family, partner, friends, and my cat
 
 <b>*for more, visit my page:*</b>
