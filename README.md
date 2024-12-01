@@ -18,6 +18,9 @@
 <b> my goal </b>
 *... to realize all my plans and ideas on a full scale.*
 
+<b> my values </b>
+*... fullfillment, fun of process and progress to perfection.*
+
 <b> my inspiration </b>
 *... curiosity and a desire for new things and spheres.*
 
