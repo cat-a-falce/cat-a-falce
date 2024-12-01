@@ -1,4 +1,23 @@
-![IMG_5312](https://github.com/user-attachments/assets/260005cb-c797-4bde-b931-1ad12a6a77f3)![IMG_5314](https://github.com/user-attachments/assets/fea4fb29-020b-485e-904c-a32ac8216029) ![IMG_5313](https://github.com/user-attachments/assets/869dab2a-c9d8-4ddf-9383-9bae8ae3439f) ![IMG_5315](https://github.com/user-attachments/assets/187a5f4b-c0b7-42f9-b73f-f0572828355b) ![IMG_5316](https://github.com/user-attachments/assets/638eba97-6208-483e-9e22-26646a73a83c) ![IMG_5317](https://github.com/user-attachments/assets/c5f69988-e000-41b3-a6c0-94becf220ba5) ![IMG_5318](https://github.com/user-attachments/assets/6534ee25-39e0-41ae-80e9-3ea74345db9b)
+
+![html 4](https://github.com/user-attachments/assets/cca92f35-fa81-4b03-9677-99af339521aa)
+![css-3 3](https://github.com/user-attachments/assets/d110d5b8-aec9-42f1-9118-1e21d02930f5)
+![java-script 2](https://github.com/user-attachments/assets/40e2ec26-4e0b-46fe-9bb7-608384e22c7e)
+![sql-server 3](https://github.com/user-attachments/assets/a11ee2c6-8121-4e36-9662-96b182c89d5e)
+![python 3](https://github.com/user-attachments/assets/6651de78-9206-4bfc-b359-8de04370124f)
+![IMG_5367](https://github.com/user-attachments/assets/74691012-ce20-4895-ba7e-a75ac4c2009a)
+![IMG_5366](https://github.com/user-attachments/assets/5335d3bc-3c48-4af9-ba8e-946f9b1571e4)
+
+
+
+
+
+
+
+
+
+
+
+
 
 ![IMG_5336](https://github.com/user-attachments/assets/07bb9315-4643-4803-85ab-17c3d9207d5a)
 
