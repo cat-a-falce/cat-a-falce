@@ -2,8 +2,7 @@
 
 ![IMG_5336](https://github.com/user-attachments/assets/07bb9315-4643-4803-85ab-17c3d9207d5a)
 
-
-![IMG_5308](https://github.com/user-attachments/assets/0d591440-2aae-4ff1-b5c4-339f2892d370)
+![IMG_5338](https://github.com/user-attachments/assets/a43735fd-f082-41cc-ab92-59fccbd02b09)
 
 <b> my motto </b>
 *... to know how much i can achieve with just passion... not to mention effort.*
@@ -23,7 +22,8 @@ ambitious university student ❍ like weapons, history and politics, dramaturgy 
 ❍ 20 y.o, moscow, appreciate my family, partner, friends, and my cat
 
 <b>*for more, visit my page:*</b>
-[![IMG_5334](https://github.com/user-attachments/assets/fa8a581a-6582-4f6d-9b08-641c6e4ca41d)](https://linktr.ee/nitroglycerina)
+[![IMG_5337](https://github.com/user-attachments/assets/b8aa7d9c-9108-445a-b9c7-8e71ab93d9c9)](https://linktr.ee/nitroglycerina)
+
 
 
 
